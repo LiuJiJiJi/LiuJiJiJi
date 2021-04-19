@@ -7,8 +7,7 @@
 - Tennis average 🎾
 - Supre Full stack engineer 👨🏻‍💻
 - Document lovers 👉 [yuque](https://www.yuque.com/liuji-wiez7/cvpfxp/mzklnz)
-- Email👉  mynameisliuji@gmail.com / mynameisliuji@foxmail.com
-- Github 👉 [LiuJiJiJi](https://github.com/LiuJiJiJi)
+- Personal Blog 👉 [Blog](https://www.liujiji.com)
 
 **Languages and Tools:**  
 
